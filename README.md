@@ -1,5 +1,5 @@
 # new-project
 
-bana ke rakh raha hu baad me dhsunga essme kya krna h 
+bana ke rakh raha hu baad me sochungaa essme kya krna h 
 
 ]
